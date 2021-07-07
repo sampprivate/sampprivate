@@ -1,4 +1,4 @@
 Список приватных читов от @sampprivate
 <ol>
-  <li>Приватный ГМ: <a href="https://drive.google.com/file/d/1dJH5biy97is44Jkbfl3HPIHLUWC3bl5e/view?usp=sharing">Клик</a>
+  <li>Приватный ГМ: <a href="https://mega.nz/file/FlJhyaqY#2AnLab8I7pBmYyg43YMGOO_9JmoXXt8aToNu8MVV0T0">Клик</a>
 </ol>
